@@ -1,6 +1,6 @@
    **__Hi!~~👋__**
 - I’m Mary Joy and my username is @Emjeeey 
-- 👀 I’m currently interested in creating mobile application
+- 👀 I’m currently interested in creating mobile application and developing websites
 - 💞️ Still a newbie
 - 📫 You can email me at maryjoy.lasco@g.batstate-u.edu.ph
 
